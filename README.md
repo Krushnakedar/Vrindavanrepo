@@ -1,1 +1,1 @@
-Jay shri Krishna
+Jay Shri Krishna
